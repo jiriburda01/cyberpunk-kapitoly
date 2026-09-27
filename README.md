@@ -14,6 +14,7 @@ Co by vzniklo, kdyby se potkaly světy Stargate a Cyberpunku? Tady sdílíme roz
 - [Kapitola 4](05_KAPITOLY/Kapitola_4_pracovni.md)
 - [Kapitola 5](05_KAPITOLY/Kapitola_5_pracovni.md)
 - [Kapitola 6](05_KAPITOLY/Kapitola_6_pracovni.md)
+- [Kapitola 7](05_KAPITOLY/Kapitola_7_pracovni.md)
 
 ## Zapoj se
 
