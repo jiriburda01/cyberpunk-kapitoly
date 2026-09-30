@@ -1936,212 +1936,153 @@ Mitch se zasmál. „Apon tě slyší?“
 Mitch stál u vysokého boku Abramsu a představil si jej na cestě mezi dvěma řadami min. To bylo pořád daleko. Levá radlice měla podepřenou váhu, Ricco našel chybějící díl a nikdo si nespletl zakonzervovaný motor s připraveným. Poprvé od rána měl z toho tanku radost, která nestála na představě, že prostě nastartuje a všechny odveze domů. Zítra nebo za pár hodin by ho možná slyšeli běžet. Dnes už věděli, kde začít, aby se o to mohli pokusit.
 
 
-Val se od Abramsu s pluhem odtrhla teprve ve chvíli, kdy Jenette požádala Mitche, aby jí znovu ukázal levé uchycení. Ricco už klečel u druhé strany s tabletem na koleni. Všichni tři měli práci, kterou za ně nedokončí. Ona s Hicksem tam jen drželi světlo a zabírali místo.
+Val s Hicksem nechali Mitche a Ricca u rozebraného uchycení pluhu. Panam jim dovolila prohlédnout zadní část hangáru, ale k vratům se zatím přibližovat neměli. Chtěla obraz, podle kterého rozhodnou o dalším postupu. Prostřední uličkou došli za ranní poslední značku až k zadní řadě tanků.
 
-Na mapě prvního hangáru jí pořád vadil neuzavřený konec. Ráno s Dwaynem došli k příčnému průjezdu, nahlédli za něj a vrátili se, protože se otvíraly další haly. Teď stáli znovu pár minut od stejné čáry. Za ní byly další tanky a zadní stěna, kterou neviděli.
+Poslední tank stál šikmo přes své stání. Za jeho věží Val zahlédla horní hranu nákladních vrat; spodní část zakrývala korba a pracovní stoly. Hicks ukázal podél boku obráceného do hlavní uličky.
 
-Panam si vyslechla, kam chtějí jít. „Mitch vás u pluhu teď nepotřebuje. Projděte tu zadní část jen po hranici, kterou si ověříte. Pokud narazíte na zabezpečení, dejte mi vědět dřív, než změníte trasu.“
+„Podívám se odsud.“
 
-Val se ohlédla na trojici u radlice. Jenette držela Mitche dál od podepřeného ramene a rukou mu ukazovala místo, kam se má dívat. S nimi tank zůstal. Val s Hicksem se vrátili prostřední uličkou k vlastní poslední značce.
+Val kývla k opačné straně. „Já zkusím zahlídnout ten ovladač. Na konci tanku se potkáme.“
 
-Ticho mezi řadami se změnilo. Ne proto, že by hangár vydával nový zvuk; z dálky k nim teď doléhalo klepnutí odloženého nářadí a útržky Riccova hlasu. Poprvé tu nebyli jediní lidé. Val prošla kolem otevřené servisní jámy a na okamžik si představila, jak by celý prostor zněl, kdyby se v něm pracovalo na všech tancích najednou.
+Hicks zmizel za korbou. Ještě chvíli viděla jeho světlo pod podvozkem, potom se kužel obrátil jinam.
 
-„Za touhle čárou jsme nebyli,“ řekl Hicks.
+Podél její strany zůstával mezi pásem tanku a nízkými bednami průchod pro jednoho člověka. Val svítila před sebe. Na betonu ležel prach, několik starých podložek a gumová rohož, jaké viděla u pracovních stolů v přední hale. Pod podrážkami jí zůstávaly zřetelné otisky.
 
-„Pamatuju si.“
+U konce korby se otevřel výhled na vrata.
 
-Přesto se zastavila a nechala si hranici ukázat na podlaze. Prach tu netvořil souvislou vrstvu. Z jedné řady do druhé kdysi jezdily těžké vozíky; pod jejich starými stopami se leskly úzké pásy hladkého betonu. Žlutá vodicí linka zahýbala mezi sloupy, pak mizela pod zakrytým stáním. Val ji odmítla brát za cestu jen proto, že po ní kdysi někdo jezdil.
+Byla zavřená. Nad nimi visely dvě střelecké věže. Jedna měla poškozený závěs, druhá se ani nepohnula. Jejich hlavně však nemířily směrem, odkud přišli. Sbíhaly se na volném prostoru, který by musel překonat kdokoli vycházející z vrat.
 
-Hicks vysunul kameru před první roh. Na obrazu se objevila další řada korb, ale méně pravidelná. Jeden tank stál šikmo, jako by ho servisní tahač nedotáhl do stání. Za ním byly nízké bedny a zamčený pojízdný regál. Val si v jednom záběru všimla něčeho, co k těm věcem nepatřilo: tenké čáry natažené mezi nohami dvou pracovních stolů.
+Val udělala poslední krok, aby viděla i pod ně.
 
-„Vrať to o kus.“
+Pod pravou patou něco povolilo.
 
-Hicks zastavil obraz. Linka zmizela v prachu u podlahy a na druhé straně vedla k malé hranaté schránce připevněné pod stolem. Val ji odtud nechtěla pojmenovat. Stačilo, že tam byla.
+Cvaknutí bylo tiché. Přesto ho rozeznala přes ventilaci helmy.
 
-„Tohle u tanků ráno nebylo,“ řekl Hicks.
-
-„Nebo jsme se tam nedostali dost daleko.“
-
-Poslali Panam polohu a obraz oddělené lávky u vnější stěny. Val do společné mapy přidala červený úsek kolem stolů a nechala průjezd uzavřený. Za jejich zády pokračovala známá ulička k bočním dveřím. Kdyby teď obrátili, odnesli by si jednu užitečnou hranici. Panam jim povolila ověřovat lávku po úsecích nejvýš k prvnímu sloupu, pokud se na ni dostanou bez přiblížení k nástraze.
-
-Hicks ji nejprve prošel kamerou. Na lávce ležela souvislá řada gumových pásů, po obou stranách ohraničená nízkým obrubníkem. Žádný nový otisk ani přerušený kabel. Val kontrolovala připojení lávky ke stěně a prostor pod prvním metrem. Teprve potom na ni oba vstoupili. Nešli vedle sebe. Hicks držel přední úhel, Val sledovala podlahu a návrat.
-
-Po několika krocích minuli schránku pod stolem z druhé strany. Zblízka viděli starší směrovou nálož, krytou tak, aby ji člověk z hlavní uličky přehlédl. Čára k ní nebyla jediná. Další se táhla výš mezi dvěma regály a u paty sloupu zůstala rezavá konzola po zařízení, které někdo dávno odmontoval. Někdo tady chránil zadní průchod po vrstvách. Některé části zůstaly, jiné ne. Z bezpečné vzdálenosti nešlo říct, které dosud fungují.
-
-U jižní brány chápala, komu takové věci brání ve vstupu. Tady ležely uvnitř hangáru, mezi pracovními stoly a tanky. Museli je obcházet lidé, kteří sem chodili pracovat. Val hledala na stěnách výstrahu nebo staré značky bezpečné cesty. Našla jen čísla stání, každý druhý štítek přelepený novějším. Jestli zdejší zaměstnanci znali průchod zpaměti, vzali si ho s sebou.
-
-„Tahle část areálu byla důležitější než sklad tanků,“ řekl Hicks.
-
-„Nebo tam vzadu schovali něco, co chtěli držet od tanků dál.“
-
-Před nimi se řady začaly rozestupovat. Val mezi posledními dvěma stroji zahlédla betonovou stěnu s širokými vodicími kolejemi. Horní hrana vrat mizela pod stropem; dole je zakrývaly zaparkované přepravní plošiny. Nebyla to běžná vrata do pouště. Vedla do masy budovy za hangárem, směrem, který starý Carolin půdorys nechával prázdný.
-
-Podél kolejí stály ochranné sloupky s odřenou barvou. Přepravní plošiny měly stejnou šířku jako ulička mezi Abramsy; Val si dokázala představit tank, který tudy někdo vede ven ze stání, ale nedokázala určit, kam pokračuje za stěnou. Právě tam končily všechny stopy po běžném provozu a začínaly nástrahy. Dřív by jí to připadalo jako odpověď. Teď to byla jen další věc, kterou si bude muset ověřit zblízka.
-
-Nad vraty rozeznala dvě stará dálkově ovládaná děla. Jedno mělo odkrytý mechanismus a viselo nakřivo, druhé zůstalo celé, ale ani při jejich pohybu se neotočilo. Obě hlavně mířily do průjezdu před vraty, ne do haly s tanky. Val nedokázala z této vzdálenosti potvrdit, zda by se druhé mohlo ještě probudit. Stačilo jí vidět, že někdo kdysi plánoval zastavit stroj, který by vyjel zpod té stěny.
-
-Hicks se na ni podíval. V minulých halách by možná začal hádat, co za nimi stojí. Teď držel kameru níž a čekal, až prověří další kus cesty. Val mu byla vděčná právě za to.
-
-„Ještě k tomu sloupu,“ řekla. „Odtud uvidíme, jestli se dá k vratům vůbec dojít.“
-
-Lávka se tam spojovala s širším pracovním pruhem. Podél stěny pokračovaly stejné gumové pásy, sešlapané uprostřed a na okrajích zvednuté prachem. Val posvítila pod nejbližší volný roh. Viděla beton, staré lepidlo, nic dalšího. Přejela pohledem k místu, kam položí nohu, a přenesla váhu.
-
-Pod podpatkem ucítila krátké povolení. Nebylo větší než pohyb víčka na pevně zavřené krabici. Její zbroj ho skoro smazala, ale z podlahy přišlo slabé kovové cvaknutí, které k jejímu kroku nepatřilo.
-
-Val zůstala stát.
-
-Podpora v její zbroji chtěla přenést váhu dál do kroku. Zadržela pohyb dřív, než jí druhá noha opustila zem. V pažích se jí na okamžik objevilo nutkání chytit se stěny, ačkoli žádná nebyla na dosah. Dívala se na prach u špičky boty. Právě teď věděla o té podlaze méně než před minutou, kdy se jí zdála obyčejná.
-
-Hicks se otočil dřív, než mu cokoli řekla. Měla jednu nohu na gumovém pásu, druhou za sebou na betonu. V jeho hledí viděla vlastní siluetu a za ní velká vrata, ke kterým zbývalo pár desítek metrů.
+Zastavila pohyb dřív, než zvedla levou nohu. Pravou měla vpředu na rohoži, levou za sebou na holém betonu. Váha těla ji táhla dál.
 
 „Dwayne.“
 
-„Vidím.“
+Jeho světlo se zastavilo na druhé straně tanku.
 
-„Kurva. Nehnu tou nohou.“
+„Co je?“
 
-Nepokusil se ji uklidnit odhadem. Přikrčil se v místě, kde stál, a kameru poslal nízko podél kraje pásu. Val sledovala jeho obraz ve svém hledí. Pod gumou byla úzká mezera a v ní kovový díl, který se pod její vahou posunul níž. Co se stane, až nohu zvedne, z obrazu nezjistila.
+„Něco mi cvaklo pod botou.“
 
-Za nimi dál někdo pracoval na Abramsu. Náraz nástroje o kov se nesl halou tak obyčejně, až Val na vteřinu nedokázala spojit ten zvuk se svým chodidlem, které nesměla odlepit od země.
+Chvíli neslyšela nic. Pak se Hicksova helma objevila za vzdáleným rohem korby. Zůstal stát tam, kam už předtím došel.
 
-Hicks přepnul společný kanál. „Panam, zastavte pohyb v zadní části tankového hangáru. Val stojí na nástraze. Potřebuju Jenette a Drakea na spojení. Nikdo sem nepůjde za náma.“
+„Pravá?“
 
-Val se nadechla pomalu. Hicks byl několik kroků od ní, dost blízko, aby se k ní dostal, a zatím se ani o krok nepřiblížil. Byla za to ráda. Zároveň ji poprvé od rána napadlo, jak dlouho vydrží stát přesně takhle.
+„Jo. Nechoď ke mně rovně.“
 
+Podíval se na podlahu mezi nimi. Z jeho strany to byly sotva tři kroky přes prostor před tankem. Ani jeden z nich tam ještě nestál.
 
-První, čeho si Val všimla, byl zvuk ventilace v helmě. Předtím ho celý den nevnímala. Teď se jí každý nádech vrátil přes lícnice a zanikl pod slabým hučením v uších. Pod pravou botou držel kovový díl v poloze, kterou si nevybrala. Levou měla opřenou o beton za sebou. Stačilo by přenést váhu nesprávným směrem.
+Hicks zvedl světlo. Pod pracovním stolem proti Val zahlédl hranatou schránku. Další držela nízko u sousedního sloupu. Z jeho původní strany je zakrývala korba.
 
-Hicks zůstal u okraje lávky. Kamera na nástavci sledovala mezeru pod gumou, jeho ruce však byly prázdné. Čekal na člověka, který ten mechanismus uměl číst lépe než oni.
+Otevřel společný kanál.
 
-„Jak na tom jsi?“ zeptal se.
+„Panam, zastavte pohyb v zadní části hangáru. Val stojí na nástraze. Jsou tu další. Počítejte, že je zaminovaný celý prostor před vratama.“
 
-„Jestli myslíš psychicky, kurva skvěle. Mám celej odpolední program.“
+„Posílám Jenette.“
 
-„Myslel jsem nohu.“
+„Jen na spojení. Nikdo za náma. Už jsme tu dva.“
 
-„Taky se baví.“
+Panam odpověděla bez prodlevy. „Rozumím. Ostatní zůstanou u hlavní uličky.“
 
-V rádiu se ozvala Panam. Nařídila Mitchovi s Riccem přerušit práci na tanku, ale nehnala je do zadní části. Jenette vyrazila od pluhu známou uličkou k jejich ranní poslední značce. Drake potvrdil, že drží servisní bod a návratový směr. Žádný z těch hlasů nezněl blízko. Val si musela připomenout, že všichni jsou stále v téže budově.
+Val zvedla oči k věžím. Teď viděla, jak na sebe jednotlivé části obrany navazují. Zavřená vrata. Hlavně nad nimi. Nálože v prostoru před prahem.
 
-V hledí se jí otevřelo soukromé okno od Judy. Ne obraz, jen hlas a úzká linka jejich spojení.
+„Oni to tady zavřeli ze svojí strany,“ řekla.
 
-„Vidím, že stojíš,“ řekla Judy.
+Hicks se znovu podíval na vrata.
 
-„To je zatím moje nejlepší práce.“
+„Teď potřebuju dostat pryč tebe.“
 
-Judy se nenachytala na vtip. „Zůstanu na příjmu.“
+Zmizel za tankem.
 
-„U rozvodů tě potřebujou. Až bude po tom, ukážeš mi, co jsi rozsvítila.“
+Val chvíli sledovala prázdný roh. Potom zaslechla jeho kroky vracející se podél opačného boku. Šel zpátky k místu, kde se rozdělili.
 
-Chvíli bylo ticho. „Jo. Ukážu.“
+„Dwayne?“
 
-Val okno zmenšila. To, že Judy neřekla nic dalšího, jí pomohlo víc než ujištění, kterému by teď stejně nevěřila.
+„Jdu po svým. Pak za tebou.“
 
-Hicks se přesunul o půl kroku stranou, stále po části lávky, kterou sám prošel. Pod gumou vedla úzká kovová hrana k místu mimo jeho záběr. Nezkoušel za ni brát. Přeposlal obraz Jenettě a vypnul ve svém hledí všechny ostatní značky, aby mu nezakrývaly Valinu botu.
+Trvalo to déle, než čekala. V hledí viděla jeho značku, ale tank mezi nimi zůstával neprůhledný. Slyšela šustnutí výstroje, krátkou odpověď Jenettě a znovu ticho.
 
-„Měl jsem tě nechat u Raptorů,“ řekl.
+Když se konečně objevil na jejím konci průchodu, klečel. Prohlížel podlahu, její otisky a místa, kam potřeboval položit vlastní nohy. Postupoval pomalu. Průchod si za sebou označoval; při návratu nechtěl hledat správné místo jen podle paměti.
 
-„Tam bych šlápla na nějakýho generála. Tohle aspoň vypadá jako podlaha.“
+Val ho nutila očima zrychlit a současně se bála každého jeho pohybu.
 
-„Příště ti vyberu lepší.“
+„Jak držíš?“ zeptal se.
 
-„Příště mi dej Black Hawk. Tam jsem chtěla jen sedět.“
+„Začínám si k tý podlaze vytvářet vztah.“
 
-Hicksův smích byl krátký. Val slyšela, že se nedívá na vrtulník ani na vrata. Dívá se na ni a na místo, odkud bude možná muset během vteřiny ustoupit.
+„Tak ho ještě chvíli udrž.“
 
-Jenette se zastavila u poslední společné značky před příčným průjezdem. Dál cesta vedla kolem stolů s viditelnými nástrahami, a proto si ani ona nedovolila přijít blíž. Na dálku porovnala Hicksův živý obraz se snímky, které pořídili před vstupem na lávku. Požádala Val, aby jí popsala přesně ten jediný pohyb, který pod botou cítila. Neodhadoval ho za ni nikdo jiný.
+Judy se připojila do soukromého kanálu. „Jsem tady.“
 
-„Povolilo to dolů,“ řekla Val. „Pak cvaknutí. Od té chvíle se nehýbu.“
+Val zavřela oči a zase je otevřela.
 
-„Dobře. Nic dalšího nezkoušej.“ Jenette zůstala chvíli u obrazu. „Dwayne, vidíš tam přenos k té schránce pod stolem?“
+„Já taky, Jude. Nějak se mi nechce dál.“
 
-„Ne celej. Kus mizí pod pásem.“
+Tentokrát se Judy nezasmála. Zůstala s ní na spojení.
 
-„Tak počítej, že jsou spojený. A Val drží přesně tak, jak stojí.“
+Hicks se dostal k Val zezadu. Nejdřív jí ukázal, kde bude stát, aby ji nepřekvapil dotykem. Potom se sklonil k pravé botě. Obraz z kamery posílal Jenettě.
 
-To byla odpověď, kterou Val nepotřebovala rozvádět. Nálož u stolu měla dost místa, aby zasáhla lávku. Její zbroj nebyla příslibem, že se jí v úzkém prostoru nic nestane, a Hicks byl ještě méně chráněný.
+Val se dívala před sebe. Hicks jí občas položil otázku, pak dlouho pracoval beze slova. Jednou se přestal ozývat i jeho dech a ona musela potlačit nutkání otočit se za ním.
 
-„Dwayne,“ řekla mu soukromě. „Jestli ti Jenette řekne ustoupit, uděláš to.“
+Ve stehně jí začalo škubat.
 
-„Až mi to řekne.“
+„Dwayne.“
 
-Val se podívala na jeho profil. „Neser mě.“
+„Vím. Ještě drž.“
 
-„Teď opravdu nemůžeš přijít a praštit mě.“
+Když se konečně narovnal, měl prach na obou kolenou.
 
-„Tak si to schovám.“
+„Tu část pod tebou máme zajištěnou,“ řekl. „Jenette to viděla. Kolem nás pořád nevíme.“
 
-Snažila se nechat koleno povolené. Těžká souprava jí obvykle brala z nohou část práce, ale automatická korekce by mohla přenést váhu bez jejího souhlasu. Zablokovala pomocný krok a zůstala v nepřirozeném postoji vlastní silou. Vzpomněla si na ráno před polem, kdy Mitchův Basilisk projel nad prvními těly a ona měla ještě možnost zastavit dva kroky před nebezpečím. Tady už žádné dva kroky neměla.
+Posunul světlo k označenému kusu betonu za nimi. Za rohem tankové korby měli místo oba. Vedla k němu cesta, kterou právě prošel.
 
-Hicks pracoval nízko u kraje pásu. V jejím obrazu se střídalo světlo jeho lampy, záda rukavice a kus šedého betonu. Jenette mu přes spojení pokládala krátké otázky; odpovědi byly ještě kratší. Val neviděla dost, aby poznala, co se mění. V jednu chvíli Hicks přestal mluvit úplně. Pak se pod gumou ozvalo tiché kovové ťuknutí.
+„Půjdeme zpátky tam. Krátkej odraz, žádný uhýbání stranou.“
 
-Val stáhla dech.
+Val se podívala na značky. Přikývla.
 
-„To jsem byl já,“ řekl Hicks. „Nohu drž.“
+„Chytím tě.“
 
-„Měl jsi říct první půlku věty před tím zvukem.“
+Jeho paže ji obepnula kolem trupu. Pevně, bez trhnutí. Druhou rukou zachytil její předloktí.
 
-„Příště.“
+„Na tři,“ řekl.
 
-„Jestli bude příště, vyberu si jinou hru.“
+Val si připravila levou nohu. Pravé koleno už skoro necítila.
 
-Přes rádio zaslechla Mitchův hlas od tanku. Chtěl vědět, zda má poslat podpěru nebo člověka. Jenette mu odpověděla, aby zatím zůstal tam, kde je; cizí kroky by jim v zadní části přidaly problém. Ricco se ani nepokusil nabídnout svůj kufr s nářadím. Poprvé za celé odpoledne Val ocenila, že její lidé umějí nedělat nic.
+„Jedna. Dva. Tři.“
 
-Čas se rozpadl na drobnosti. Hicksova ruka se jednou objevila v záběru bez nástroje a znovu zmizela. U vzdálených vrat pomalu klesal pruh slunce z horního okna. Valino stehno začalo bolet pod úchytem zbroje. Začala si v hlavě skládat první větu, kterou řekne Judy, až zvedne nohu, a pokaždé ji zarazila dřív, než došla ke konci.
+Odrazila se vlastní silou. Hicks ustoupil s ní a držel jejich pohyb podél korby. Pod botou něco povolilo, ale Val už dopadala na označený beton. Pravá noha jí při dosednutí změkla. Hicks ji zachytil a oba se opřeli o bok tanku za rohem.
 
-„Spojení s tou náloží pod stolem je přerušený,“ řekl Hicks. Poslal Jenettě druhý úhel obrazu a počkal, až ho sama porovná s prvním. „Za nic dalšího pod pásem ručit nemůžu.“
+Nic nevybuchlo.
 
-„Val,“ ozvala se Jenette. „Dwayne skončil s tím, co mohl ověřit z boku. Teď potřebujeme poslední pohyb. Chci, aby šel zpátky za sloup.“
+Val slyšela vlastní dech, Hicksův dech a Jenette, která po nich chtěla potvrzení.
 
-Hicks zvedl hlavu. Val mu přes hledí viděla jen oči za odrazem lampy.
+„Jsme za tankem,“ odpověděl Hicks. „Oba.“
 
-„Slyšel jsi ji,“ řekla.
+Paži měl pořád kolem jejího pasu.
 
-„Slyšel.“ Zůstal u ní.
+Val k němu zvedla oči. Chvíli hledala dech, než promluvila.
 
-„Nemáš na sobě moji zbroj.“
+„Na tohle jsi čekal celou dobu, co?“
 
-„Proto tu stojím blíž k tobě než k tomu stolu.“
+Podíval se na svou ruku.
 
-„To je nejhorší věta, kterou ses mě dnes pokusil ohromit.“
+„Mohlas vymyslet něco bez miny.“
 
-„Tak mi ji pak můžeš omlátit o hlavu.“
+Krátce se zasmála. Pod Hicksovou dlaní se pořád třásla.
 
-Jenette jejich soukromý kanál neslyšela. Viděla však, že se Dwayne nepohnul. „Hicksi, bezpečný místo je za sloupem.“
+„Už stojím, Dwayne.“
 
-„Jestli se něco pohne, dostanu ji odtud. Vidím ji.“
+Povolil sevření, ale zůstal blízko.
 
-„Nemáš jistotu, že budeš rychlejší než nálož.“
+Jenette jim do hledí poslala jejich návratovou trasu. Prostor před vraty zůstal červený.
 
-„Vím.“
+„Stejnou cestou ven,“ řekla. „Dnešní průzkum tady skončil.“
 
-Val nechtěla, aby tam byl. Zároveň věděla, že ho nepřesvědčí další větou, kterou už oba slyšeli. Když jí položil ruku na předloktí, nechytil ji jako někoho, koho musí držet na místě. Byl připravený ji stáhnout, až se bude smět pohnout. Jeho starší Sandevistan i její Apogee čekaly na povel; ani jeden z nich nepředstíral, že z nich dělají neprůstřelný plán.
-
-Jenette jim dala čas. Val si nejdřív uvědomila jen tlak Hicksových prstů přes plát. Pak přenesla váhu z pravé nohy. Pod gumou se cosi vrátilo do původní polohy. Žádný hlasitý zvuk, žádný výbuch. Hicks ji strhl k sobě a oba se dostali za sloup po části lávky, kterou už prošli. Teprve tam Val pochopila, že má obě nohy zase pod sebou.
-
-„Jsme pryč,“ ohlásil Hicks.
-
-Jenette po něm chtěla, aby to zopakoval. Zopakoval. Drake na jejich návratové trase potvrdil, že za jejich zády se nikdo nehýbe. Panam zrušila zastavení práce v přední části hangáru, zadní úsek však nechala uzavřený. Nástraha zůstala pod pásem, označená jejich obrazem a hranicí, za kterou dnes nikdo nepůjde.
-
-Val se opřela o sloup. Teď, když mohla stát jakkoli, se jí koleno začalo třást. Hicks jí pustil paži až ve chvíli, kdy se sama narovnala.
-
-„Dlužíš mi lepší podlahu,“ řekla.
-
-„Celou halu ti vyberu sám.“
-
-„To by mě po dnešku asi nepustila Judy.“
-
-Její jméno stačilo. Soukromé okno se otevřelo dřív, než se Val stihla ozvat.
-
-„Já vás oba slyšela,“ řekla Judy. Hlas měla pevný, jen poslední slovo jí trochu ujelo. „A mimochodem jsem našla samostatný přívod k těžký dílně. Takže až se odtamtud vrátíš, můžeš se tvářit, že tě zajímá moje práce.“
-
-Val se usmála pod helmou. „Zajímá. I když mě teď víc zajímá, jestli k tobě dojdu po normální zemi.“
-
-„Cestu zpátky máš v mapě. Tu, kterou jste opravdu prošli.“
-
-Val zvedla oči k velkým vratům. Stála od nich pořád stejně daleko. Teď věděla, proč se k nim nedostává po obyčejné uličce. Chtěla vědět, co za nimi je, ale tu otázku si musela odnést zpátky přes svůj vlastní bezpečný pás. Otočila se k Hicksovi. Čekal vedle ní, už bez ruky na jejím předloktí.
-
-„Jdeme,“ řekla. „A tu tvoji větu ti ještě připomenu.“
+Val už se na vrata nepodívala. Sledovala Hicksovy značky a šla.
 
 
 Judy položila na okraj stolu proužek žluté pásky a napsala na něj TĚŽKÁ DÍLNA — VYPNUTO. Přilepila ho pod druhý ze tří starých přepínačů. Původní štítek tam byl také, jen pod tolika vrstvami prachu, že ho ráno přehlédla. Zpod jejího prstu vystupovala vyražená písmena, zatímco z rozvaděče doléhalo rovnoměrné vrčení větve, kterou už zprovoznila. Aspoň jedna část téhle budovy teď zněla jako pracoviště.
@@ -2156,11 +2097,11 @@ Christy se podívala na mapu. „Takže zelenou čáru tam nekreslím.“
 
 Mark nadzvedl schémata. „Mám tu tři různý roky a ve všech je dílna jinde.“
 
-Judy se natáhla pro horní list. Starý výkres kreslil za tankovým hangárem úhledný obdélník. Novější, ručně doplněná kopie posouvala hranici o dvě pole sloupů dál. Bylo lákavé vzít tu druhou a říct Riccovi, ať hledá zásuvku právě tam. Po dnešku se jí před očima držel gumový pás na podlaze, který také vypadal jako cesta.
+Judy se natáhla pro horní list. Starý výkres kreslil za tankovým hangárem úhledný obdélník. Novější, ručně doplněná kopie posouvala hranici o dvě pole sloupů dál. Bylo lákavé vzít tu druhou a říct Riccovi, ať hledá zásuvku právě tam. Po dnešku se jí před očima držela rohož u posledního tanku. I na zdánlivě volném průchodu mohla ležet nástraha.
 
 „Tak mu dáme obě místa,“ řekla. „Ať nehledá podle naší jistoty, kterou nemáme.“
 
-Přes sklo viděla Panam u venkovního servisního sloupku. Mluvila s Cynthií a ukazovala k silnici, odkud se měl vrátit Valin tým. Judy už třikrát zkontrolovala jejich polohu v mapě. Tečky se posouvaly pomalu: od zadní lávky k ranní hranici, kolem Abramsu a pak hlavní uličkou k bočnímu východu. V přenosu z Valiny helmy občas zahlédla kus známého betonu nebo Hicksova záda. Nechala obraz zmenšený v rohu stolu, aby se nemusela ptát rádia na každý jejich krok.
+Přes sklo viděla Panam u venkovního servisního sloupku. Mluvila s Cynthií a ukazovala k silnici, odkud se měl vrátit Valin tým. Judy už třikrát zkontrolovala jejich polohu v mapě. Tečky se posouvaly pomalu: od posledního tanku k ranní hranici, kolem Abramsu a pak hlavní uličkou k bočnímu východu. V přenosu z Valiny helmy občas zahlédla kus známého betonu nebo Hicksova záda. Nechala obraz zmenšený v rohu stolu, aby se nemusela ptát rádia na každý jejich krok.
 
 Ze spojení se ozvala Jenette. „Prošli kolem nás. Val jde sama. Dwayne jí drží tempo.“
 
@@ -2514,7 +2455,7 @@ Val slyšela, jak se v těch slovech lidé nepatrně uvolnili. Panam měla pravd
 
 Cole otočil mapu k nim. „A přesto původní plán končil přesně tam, kde Val s Hicksem uviděli nákladní vrata. Tohle není sklep pod správou. Pod areálem je další areál.“
 
-Val ukázala na spojovací pás. „Vrata jsou tam. Viděli jsme je z lávky, ne zblízka. Cesta k nim je plná nástrah a po dnešku je zavřená.“
+Val ukázala na spojovací pás. „Vrata jsou tam. Viděli jsme je zza posledního tanku, ne zblízka. Prostor před nimi je plný nástrah a po dnešku je zavřenej.“
 
 „Nákladní osa na plánu navazuje do prvního podlaží,“ řekl Cole. „Odtud jsou další vstupy dolů. Druhé podlaží je označené jako laboratorní. Zbytek je částečně skrytý.“
 
@@ -2609,11 +2550,11 @@ Judy Val postrčila ramenem dál. „Teď už bude o tom podvalníku mluvit cele
 
 Riley se zasmál a pak se vrátil k Basilisku. Mitch měl ještě převzít jeho pozorovací místo. Apon, který tam držel ranní hlídku, přijde po označené cestě ke skupině teprve potom. Val chtěla ten přesun vidět. Včerejší večer na mapě vypadali jako dvacet teček připravených sestoupit; ráno měla každá tečka práci, kterou musel někdo dokončit nebo předat.
 
-V přední části hangáru už stál Drake s Jenette. Od Abramsova stání vedla dál známá hlavní ulička k příčnému průjezdu. Za ním začínalo místo, kde se mapa včera změnila na červenou. Oba vojáci nechali ostatní čekat u té hranice. Vrátili se k prvním stolům a po několika minutách zmizeli mezi tanky na opačné straně haly. Val sledovala jejich polohy v hledí, ale kamera jí neukázala všechno, co viděli na podlaze.
+V přední části hangáru už stál Drake s Jenette. Od Abramsova stání vedla dál známá hlavní ulička k příčnému průjezdu. Za ním začínalo místo, kde se mapa včera změnila na červenou. Oba vojáci nechali ostatní čekat u té hranice. Po včerejší návratové trase došli k poslední řadě tanků. Hicksovy značky vedly kolem šikmo odstavené korby k místu, odkud odvedl Val, a tam končily. Mezi nimi a zadními vraty zůstával neprověřený prostor. Val sledovala jejich polohy v hledí, ale kamera jí neukázala všechno, co viděli na podlaze.
 
-„Lávku necháváme zavřenou,“ řekla Jenette do společného kanálu. „K vratům zkusíme dojít z hlavní uličky. Jestli to nepůjde, vrátíme se.“
+„Tudy jsme včera dostali dva lidi zpátky,“ řekla Jenette do společného kanálu. „Cestu k vratům ještě nemáme. Zkusíme ji najít z hlavní uličky. Jestli to nepůjde, vrátíme se.“
 
-Val se podívala k místu, kde pod gumovým pásem zůstávalo zařízení, na které šlápla. Znala odtud cestu zpátky velmi přesně. Dál nebyla ani o krok zkušenější než včera ráno.
+Val si v mapě našla místo, kde pod rohoží zůstávalo zařízení, na které šlápla. Znala odtud cestu zpátky velmi přesně. Dál nebyla ani o krok zkušenější než včera ráno.
 
 Hicks stál vedle ní. Nenabízel odhad, jak dlouho bude kontrola trvat. Místo toho jí ukázal na zadní stěně bod, kde se dalo mezi dvěma tanky zahlédnout horní hranu nákladních vrat.
 
@@ -2631,13 +2572,13 @@ Kontrola zadní haly trvala větší část dopoledne. Jenette s Drakem několik
 
 „Až najdeš takovou, kterou nemusím před použitím prohlédnout,“ odpověděla mu.
 
-Jenette se nakonec ozvala z místa před poslední řadou tanků. Došla k vratům po středovém pracovním pruhu a cestu za sebou označila. Včerejší lávka zůstala mimo něj; viditelné nálože u stolů a další podezřelá místa oddělila červenými hranicemi. Drake nehlásil „čisto“. Popsal pás, který oba prošli, a vše za jeho okraji nechal nedotčené.
+Jenette se nakonec ozvala od zadních vrat. S Drakem k nim došla novým úzkým koridorem z hlavní uličky a cestu za sebou označila. Včerejší cesta k Val končila u posledního tanku; místo jejího došlápnutí i viditelné nálože u stolů zůstaly za červenými hranicemi. Drake nehlásil „čisto“. Popsal jen koridor, který oba prošli, a vše za jeho okraji nechal nedotčené. Potom prověřili betonovou plochu, kde se měla shromáždit skupina, i přístup k ovládací skříni.
 
 Pak museli vyřešit děla nad vraty. Z dálky jedno vypadalo rozbité a druhé připravené otočit se za prvním pohybem. Zblízka Jenette našla u obou vyjmuté zásobníky a Carol podle jejich místního panelu ověřila, že napájecí přívod končí před servisním uzávěrem. Drake trval na kontrole i z druhé strany palebné osy. Teprve když se vrátil na značku a potvrdil, že jejich průchod nemůže dostat střelu z obou pozic, dovolila Panam přesun ostatních.
 
 Šli v rozestupech, nikoli ve slavnostním zástupu. Val si všímala, kdo se před hranicí na okamžik zastavil. Jace přepnul mapu z letištního skladu na novou trasu, Lena se ohlédla na Tess a Mark s Christy ztichli, když míjeli stoly s nástrahami. Nikdo jim neříkal, aby byli stateční. Měli dost práce s tím, aby každý došel po správné straně značek.
 
-Před vraty se všichni sešli až po roztažení do širšího betonového prostoru. Křídla sahala skoro ke stropním nosníkům. Po straně zůstala stará servisní skříň s několika vrstvami novější kabeláže, přesně takovou, jakou Judy nesnášela vysvětlovat z fotografie. Otevřela ji vlastním nářadím a Carol si stoupla k druhému konci ovládání. Cole před nimi držel pouze místní schéma; do hlubší sítě základny se nepřipojil.
+Před vraty se všichni sešli až na prověřené části širšího betonového prostoru. Křídla sahala skoro ke stropním nosníkům. Po straně zůstala stará servisní skříň s několika vrstvami novější kabeláže, přesně takovou, jakou Judy nesnášela vysvětlovat z fotografie. Otevřela ji vlastním nářadím a Carol si stoupla k druhému konci ovládání. Cole před nimi držel pouze místní schéma; do hlubší sítě základny se nepřipojil.
 
 Panam vstoupila mezi skupinu a vrata. „Včera jsme si řekli, za jakých podmínek sem přijdeme. Cesta zpátky je teď označená a rádio funguje. Poslední možnost zůstat nahoře je právě tady.“ Nechala několik vteřin projít. „Kdo chce, půjde za Mitchem a Rileym. Nikomu to nebudu vysvětlovat jako selhání.“
 
@@ -2987,7 +2928,7 @@ Cole otevřel papírovou složku v držáku u okna. Nebyla v ní historie firmy 
 
 Judy dočetla poslední větu. „A když se přeruší rádio, nenechá otevřenej ventil jen proto, že nikdo nedrží ovladač.“
 
-To byla vlastnost, kterou Ricco uměl ocenit. Ve Steam Plant před dvěma dny stačilo dostat člověka k jedinému ovládacímu bodu a udržet ho tam, dokud práce neskončí. Kdyby byl průchod plný ohně, poslat dovnitř stroj nebylo samo o sobě kruté rozhodnutí. Kruté by bylo poslat tam Christy, Jenette nebo kohokoli jiného, protože vozík čekal rozebraný ve skladu.
+To byla vlastnost, kterou Ricco uměl ocenit. Ve Steam Plant včera stačilo dostat člověka k jedinému ovládacímu bodu a udržet ho tam, dokud práce neskončí. Kdyby byl průchod plný ohně, poslat dovnitř stroj nebylo samo o sobě kruté rozhodnutí. Kruté by bylo poslat tam Christy, Jenette nebo kohokoli jiného, protože vozík čekal rozebraný ve skladu.
 
 „Tenhle to zvládl?“ zeptala se Panam.
 
@@ -3946,9 +3887,9 @@ Judy chtěla odpovědět, ale přístroj zapípal znovu. Christy už stála u Ma
 
 „Pohyb vzadu,“ řekla.
 
-Místnost ztichla tak rychle, že slyšela vlastní dech v helmě. Apon přikázal Christy a Markovi ustoupit k otevřenému vstupu. Drake s Jenette zaujali boky regálu, zbraně připravené, ale ne namířené přes Judy. Val se postavila po jejím boku a sledovala spodní mezeru mezi nohami stolů. Na její optice se nic nerozsvítilo. Judy také neviděla nic, jen bod, který se blížil od zadního výklenku.
+Místnost ztichla tak rychle, že slyšela vlastní dech v helmě. Apon přikázal Christy a Markovi ustoupit k otevřenému vstupu. Trevor položil Markovi dlaň na rameno a stáhl ho za sebe. Mark uvolnil místo, aniž se ohlédl; Christy ustoupila ke dveřím. Trevor zvedl zbraň k mezeře pod zadním regálem. Po straně měl volný výhled, Judy zůstávala mimo jeho palebnou osu. Drake s Jenette zaujali boky regálu, zbraně připravené, ale ne namířené přes Judy. Val se postavila po jejím boku a sledovala spodní mezeru mezi nohami stolů. Na její optice se nic nerozsvítilo. Judy také neviděla nic, jen bod, který se blížil od zadního výklenku.
 
-Pak se v mezeře objevilo drobné šedé tělo. Myš se na okamžik zastavila u okraje světla a displej zmlkl. Christy vydechla smích dřív, než se zvíře rozběhlo podél stěny; tracker při tom znovu pípl. Mark sklopil zbraň a tvářil se, že ji vlastně nikdy nezvedl. Cassidy za nimi pronesl: „Oblast 52 má konečně něco, co znám z domu.“
+Detektor znovu pípl. Trevor se ani nepohnul. Teprve když zpod regálu vyběhla myš, povolil tlak ramene do pažby. Za ním Christy vyprskla smíchy. Mark se naklonil, aby přes Trevorův bok viděl také. Myš se na okamžik zastavila u okraje světla a displej zmlkl. Pak se rozběhla podél stěny. Cassidy za nimi pronesl: „Oblast 52 má konečně něco, co znám z domu.“
 
 Judy nechala myš zmizet pod servisní lištou. Bod zhasl, jakmile zmizela mimo kužel. Val se k ní naklonila. „Tak co, necháme si tu hluchou krabici?“
 
@@ -4193,7 +4134,13 @@ Mříž vyjela vzhůru pod tlakem čtyř kloubových noh. Nízký obrněný trup
 
 Jeho optika přejela po Drakovi. Val viděla začátek otočení hlavně a zakřičela: „Doleva!“
 
-Drake se opřel do Centaurova rámu a uskočil ke stěně. Atlasova první dávka rozbila roh, u kterého stál. Beton zasypal chodbu úlomky. Drakův kulomet odpověděl krátkou dávkou na optický pás, ale projektily sklouzly po čelním plátu. Stroj neustoupil. Měřil novou polohu.
+Drake se opřel do Centaurova rámu a uskočil ke stěně. Minotaurova první dávka rozbila roh, u kterého stál. Beton zasypal chodbu úlomky. Trevor se stáhl s ním. Zůstal o krok vzadu, dokud Drake nezaujal místo u hrany krytu, potom si našel vlastní výhled podél jeho levého boku. Drakův kulomet odpověděl krátkou dávkou na optický pás. Střely sklouzly po čelním pancíři stroje. Minotaur neustoupil. Měřil novou polohu.
+
+„Posunu se doprava,“ řekl Drake.
+
+Trevor přitiskl pažbu pevněji k rameni. „Máš prostor.“
+
+Začal pálit na boční plát, zatímco Drake přešel za jeho zády k dalšímu výstupku stěny. Jakmile se znovu ozval těžký kulomet, Trevor přerušil palbu a stáhl se k němu.
 
 Apon držel ostatní za západním ohybem. Hicks odtud viděl jen část těla protivníka; nestřílel přes Drakea, dokud se mu neotevřel čistý úhel. Val vytáhla Yinglong. Breakthrough měla na zádech, dlouhá puška se do téhle chodby nehodila a její čtyři náboje patřily hrozbě, kterou nepůjde obejít.
 
@@ -4203,35 +4150,35 @@ Apon držel ostatní za západním ohybem. Hicks odtud viděl jen část těla p
 
 „Potřebuju okamžik, až se otočí k Drakeovi.“
 
-Val viděla v optice dva oddělené cíle: hlavu zbraně a úzkou spáru pod jejím otočným věncem. Přímý quickhack do zbraně se odrazil od starého vojenského řadiče. Zato podpůrný senzor na boku odpověděl na krátký elektrický impuls. Val do něj poslala Short Circuit. Světlo v optickém pásu zakolísalo, ale Atlas dál stál na nohách. Nebyl to vypínač, jen několik vteřin špatného vidění.
+Val viděla v optice dva oddělené cíle: hlavu zbraně a úzkou spáru pod jejím otočným věncem. Přímý quickhack do zbraně se odrazil od starého vojenského řadiče. Zato podpůrný senzor na boku odpověděl na krátký elektrický impuls. Val do něj poslala Short Circuit. Světlo v optickém pásu zakolísalo, ale Minotaur dál stál na nohách. Nebyl to vypínač, jen několik vteřin špatného vidění.
 
 „Teď!“ zavolala Coleovi.
 
 Cole spustil servisní kontrolu. Trup se na zlomek okamžiku pokusil srovnat s osou haly za sebou. Drake využil zaváhání k další dávce do předního kloubu. Kov povolil jen na okraji, ale robot přenesl váhu a odhalil pravý bok. Vasquezová z dveří regenerační laboratoře vypálila do stejného místa. Její střely se zakously pod plát; rozlétly se jiskry a jeden kabel zůstal viset venku.
 
-Atlas se po ní prudce otočil. Val spustila Apogee dřív, než se hlaveň ustálila. Zrychlené vnímání jí nedalo víc prostoru v chodbě; dovolilo jí jen vybrat dvě místa pro nohy, která nebyla pokrytá rozbitým betonem. Přesunula se z rohu k nízkému servisnímu soklu, odkud měla na poškozený bok krátkou přímou osu. Za zády ucítila, jak se její zbroj snaží odvést teplo.
+Minotaur se po ní prudce otočil. Val spustila Apogee dřív, než se hlaveň ustálila. Zrychlené vnímání jí nedalo víc prostoru v chodbě; dovolilo jí jen vybrat dvě místa pro nohy, která nebyla pokrytá rozbitým betonem. Přesunula se z rohu k nízkému servisnímu soklu, odkud měla na poškozený bok krátkou přímou osu. Za zády ucítila, jak se její zbroj snaží odvést teplo.
 
 Yinglong poslal do odkrytého kabelu rychlou dávku. Chytré střely opravily dráhu jen do chvíle, než jim kovový trup přerušil výhled. Dvě zasáhly, ostatní se rozbily o pancíř. Elektrický účinek zatřásl hlavicí, ale stroj se znovu připojil ke svému vlastnímu řízení. Jeho zadní noha se odrazila od stěny a tělo se sunulo k Val.
 
-„V, ustup!“ ozvala se Judy. V jejich sdílené telemetrii blikalo chlazení. Val odpojila Apogee a přeskočila za sokl vlastní silou. Atlasova zbraň roztrhala jeho horní hranu. Úlomky jí narazily do ramenního plátu, ale nedostaly se skrz. Judy už mířila trackerem na servisní halu; žádný další pohyb za prvním strojem neviděla. Nemohla slíbit, že tam nic nestojí.
+„V, ustup!“ ozvala se Judy. V jejich sdílené telemetrii blikalo chlazení. Val odpojila Apogee a přeskočila za sokl vlastní silou. Minotaurova zbraň roztrhala jeho horní hranu. Úlomky jí narazily do ramenního plátu, ale nedostaly se skrz. Judy už mířila trackerem na servisní halu; žádný další pohyb za prvním strojem neviděla. Nemohla slíbit, že tam nic nestojí.
 
-Hicks konečně dostal úhel na odkrytý kloub. Jediným přesným výstřelem přerušil jeho vnější táhlo. Atlas klesl na pravou stranu. Neupadl, jen se na ostatních nohách opřel výš a zkusil hlavní sledovat Hickse. Apon ho stáhl zpátky za roh. Drake připojil nový pás, který mu podal Wierzbowski, a vedl krátké potlačovací dávky na zbraňový věnec. Nedržel spoušť v kuse; čekal na okamžik, kdy se hlavice snažila získat Val nebo Vasquezovou.
+Hicks konečně dostal úhel na odkrytý kloub. Jediným přesným výstřelem přerušil jeho vnější táhlo. Minotaur klesl na pravou stranu. Neupadl, jen se na ostatních nohách opřel výš a zkusil hlavní sledovat Hickse. Apon ho stáhl zpátky za roh. Drake využil krátkého zaváhání stroje a sáhl k podávání. Trevor už měl připravený nový pás. Podal mu ho, počkal, až jej zachytí, a okamžitě se vrátil ke své zbrani. Drake nemusel od stroje odvrátit oči déle, než bylo nutné. Připojil pás a vedl krátké potlačovací dávky na zbraňový věnec. Nedržel spoušť v kuse; čekal na okamžik, kdy se hlavice snažila získat Val nebo Vasquezovou.
 
 Vasquezová uviděla, co Val z jejího místa nemohla: pod poškozeným plátem se při každém otočení otevřela úzká servisní štěrbina. „Vpravo dole! Pod věncem, když hledá cíl!“
 
-Val si vyměnila s Judyinou optikou značku polohy. Neznamenala živý obraz ze všech stran; jen místo, které Vasquezová právě označila. Cole znovu vyžádal diagnostiku, tentokrát už bez šance Atlas dlouho zdržet. Stroj mu odpověděl chybou. Přesto na okamžik zastavil hlaveň, aby obnovil vlastní kalibraci.
+Val si vyměnila s Judyinou optikou značku polohy. Neznamenala živý obraz ze všech stran; jen místo, které Vasquezová právě označila. Cole znovu vyžádal diagnostiku, tentokrát už bez šance Minotaura dlouho zdržet. Stroj mu odpověděl chybou. Přesto na okamžik zastavil hlaveň, aby obnovil vlastní kalibraci.
 
-To stačilo. Val přeběhla zpoza soklu pod úroveň zbraně. Nevystřelila do hladkého plátu; vysunula pravou Mantis Blade a vrazila ji do štěrbiny, kterou otevřely Vasquezové zásahy. Narazila na kabel a pevný vnitřní držák. Sekla jednou, ucítila, jak držák povolil, a okamžitě se stáhla. Atlasova levá noha dopadla tam, kde před chvílí měla chodidlo.
+To stačilo. Val přeběhla zpoza soklu pod úroveň zbraně. Nevystřelila do hladkého plátu; vysunula pravou Mantis Blade a vrazila ji do štěrbiny, kterou otevřely Vasquezové zásahy. Narazila na kabel a pevný vnitřní držák. Sekla jednou, ucítila, jak držák povolil, a okamžitě se stáhla. Minotaurova levá noha dopadla tam, kde před chvílí měla chodidlo.
 
 „Teď z té strany!“ zavolala.
 
-Vasquezová pustila krátkou dávku do otevřené mezery. Hicks přidal dvě přesné rány na odkrytý senzor. Val, už zpátky za soklem, poslala poslední krátký sled z Yinglongu tam, kde z těla visel kabel. Atlas se pokusil otočit, jedna noha šla špatným směrem a trup narazil do stěny. Zbraň vystřelila ještě jednou do stropu. Pak její hlaveň klesla a čtyři klouby zůstaly bez pohybu.
+Vasquezová pustila krátkou dávku do otevřené mezery. Hicks přidal dvě přesné rány na odkrytý senzor. Val, už zpátky za soklem, poslala poslední krátký sled z Yinglongu tam, kde z těla visel kabel. Minotaur se pokusil otočit, jedna noha šla špatným směrem a trup narazil do stěny. Zbraň vystřelila ještě jednou do stropu. Pak její hlaveň klesla a čtyři klouby zůstaly bez pohybu.
 
-Nikdo se k němu nerozběhl. Apon nechal držet sektory, dokud Cole nepotvrdil, že z místního řadiče zmizely povely motorům. Judy zkusila trackerem prostor za mříží. Na chvíli se objevil bod u stroje, když mu jeden kloub naposledy škubl, pak nic. Jenette s Crowem teprve potom ověřili servisní halu za otevřenou mříží. Další jednotku nenašli. Ricco z bezpečné strany odpojil napájení rozbitého těla; Cole potvrdil proražený řídicí blok a přerušenou silovou sběrnici. Atlas už neměl co znovu spustit.
+Nikdo se k němu nerozběhl. Apon nechal držet sektory, dokud Cole nepotvrdil, že z místního řadiče zmizely povely motorům. Judy zkusila trackerem prostor za mříží. Na chvíli se objevil bod u stroje, když mu jeden kloub naposledy škubl, pak nic. Jenette s Crowem teprve potom ověřili servisní halu za otevřenou mříží. Další jednotku nenašli. Ricco z bezpečné strany odpojil napájení rozbitého těla; Cole potvrdil proražený řídicí blok a přerušenou silovou sběrnici. Minotaur už neměl co znovu spustit.
 
-Tess prohlédla Hickse, kterému úlomek betonu rozřízl kůži na tváři. Dietrichová zkontrolovala Valino rameno a teplotu pod zbrojí. Zranění bylo povrchové; chlazení však potřebovalo čas. Val stála u stěny a nechala Judy dívat se na údaje. Po jejím výrazu poznala, že se Judy ještě nevrátila z chvíle, kdy Atlas mířil přímo na ni. Než Val stačila něco říct, Judy jí přitlačila dlaň na nepoškozený plát hrudi. Byl to rychlý dotek, ne zastavení práce. Stačil.
+Tess prohlédla Hickse, kterému úlomek betonu rozřízl kůži na tváři. Dietrichová zkontrolovala Valino rameno a teplotu pod zbrojí. Zranění bylo povrchové; chlazení však potřebovalo čas. Val stála u stěny a nechala Judy dívat se na údaje. Po jejím výrazu poznala, že se Judy ještě nevrátila z chvíle, kdy Minotaur mířil přímo na ni. Než Val stačila něco říct, Judy jí přitlačila dlaň na nepoškozený plát hrudi. Byl to rychlý dotek, ne zastavení práce. Stačil.
 
-Na boku rozbitého trupu našli pod servisním značením jméno **ATLAS**. Carol poznala novější konektor pro dobíjení, Cole v něm našel poslední přijatý servisní cyklus a Judy přiložila ruku k vnějšímu plátu. Byl teplý i tam, kam se během boje netrefili. Stroj nestál desítky let mrtvý v prachu. Někdo nebo něco jej udržovalo připravený na aktivní bezpečnostní větvi.
+Na boku rozbitého trupu našli pod servisním značením jméno **MINOTAUR**. Carol poznala novější konektor pro dobíjení, Cole v něm našel poslední přijatý servisní cyklus a Judy přiložila ruku k vnějšímu plátu. Byl teplý i tam, kam se během boje netrefili. Stroj nestál desítky let mrtvý v prachu. Někdo nebo něco jej udržovalo připravený na aktivní bezpečnostní větvi.
 
 Apon sečetl všechny, kteří ustoupili za západní roh, i lidi u vraku. Dvacet. Panam zavolala Mitchovi. Spojení se nejprve rozpadlo do šumu, pak se jeho hlas vrátil. „Slyšel jsem palbu. Co se stalo?“
 
@@ -4241,26 +4188,26 @@ Cole ukázal na terminál u servisní haly. „Odtud zjistím, proč se probudil
 
 „Nejdřív mu odpojíme zbraň a ověříme, že se nic dalšího nehýbe,“ řekl Apon. „Pak se podíváme.“
 
-Panam přikývla. Val si sedla na nízký okraj soklu, aby zbroj mohla odvést zbylé teplo. Před hodinou byla nejživější věcí v podzemí myš za lištou. Teď před ní ležel teplý obranný stroj, jehož poslední pokyn přišel ze stále napájené části základny. Jestli chtěli vědět, co udrželo Atlas připravený, nemuseli jít o patro níž. Odpověď vedla k terminálu několik kroků od nich.
+Panam přikývla. Val si sedla na nízký okraj soklu, aby zbroj mohla odvést zbylé teplo. Před hodinou byla nejživější věcí v podzemí myš za lištou. Teď před ní ležel teplý obranný stroj, jehož poslední pokyn přišel ze stále napájené části základny. Jestli chtěli vědět, co udrželo Minotaura připraveného, nemuseli jít o patro níž. Odpověď vedla k terminálu několik kroků od nich.
 
 
-Carol čekala, až Ricco zajistí Atlasův zbraňový modul, a sledovala světla u terminálu za otevřenou servisní mříží. Všechna tři svítila stejně klidně jako před střelbou. Chodba kolem nich měla rozbitý roh, Val chladila zbroj a Hicksovi Tess zalepila řeznou ránu na tváři. Terminál si ničeho z toho nevšímal. Pro něj skončila jen jedna bezpečnostní událost.
+Carol čekala, až Ricco zajistí Minotaurův zbraňový modul, a sledovala světla u terminálu za otevřenou servisní mříží. Všechna tři svítila stejně klidně jako před střelbou. Chodba kolem nich měla rozbitý roh, Val chladila zbroj a Hicksovi Tess zalepila řeznou ránu na tváři. Terminál si ničeho z toho nevšímal. Pro něj skončila jen jedna bezpečnostní událost.
 
-Panam držela skupinu v již prošlém úseku před regenerační laboratoří. Apon postavil Jenette k mříži a Crowa k západnímu rohu, odkud měli pod dohledem cestu zpátky k Q-17. Nikdo se neoddělil hledat další místnosti. Carol, Cole a Judy přešli několik kroků k servisnímu pultu až po potvrzení, že rozbitý Atlas je odpojený a v hale za ním nic dalšího nestojí.
+Panam držela skupinu v již prošlém úseku před regenerační laboratoří. Apon postavil Jenette k mříži a Crowa k západnímu rohu, odkud měli pod dohledem cestu zpátky k Q-17. Nikdo se neoddělil hledat další místnosti. Carol, Cole a Judy přešli několik kroků k servisnímu pultu až po potvrzení, že rozbitý Minotaur je odpojený a v hale za ním nic dalšího nestojí.
 
 „Nejdřív poslední povel,“ řekla Panam. „Pak zjistíme, jestli ten proud umíš odříznout, aniž nám zavřeš dveře.“
 
-Carol kývla. Cole otevřel místní diagnostiku, Judy zkontrolovala fyzické vedení od pultu k nabíjecím kontaktům. Atlas nečekal s plnou baterií od dávné války. V servisní hale se pravidelně dobíjel a vlastní kontrolu motorů dokončil naposledy nedávno. V deníku se opakovaly stejné činnosti: kontrola článku, zkouška kloubů bez opuštění stání, návrat do klidového režimu. Dnešní řádek se lišil až posledním slovem: **NARUŠENÍ SEKTORU**.
+Carol kývla. Cole otevřel místní diagnostiku, Judy zkontrolovala fyzické vedení od pultu k nabíjecím kontaktům. Minotaur nečekal s plnou baterií od dávné války. V servisní hale se pravidelně dobíjel a vlastní kontrolu motorů dokončil naposledy nedávno. V deníku se opakovaly stejné činnosti: kontrola článku, zkouška kloubů bez opuštění stání, návrat do klidového režimu. Dnešní řádek se lišil až posledním slovem: **NARUŠENÍ SEKTORU**.
 
 „Kdo ho vyslal?“ zeptala se Panam.
 
-Cole ukázal řetězec události. Čidlo u servisní mříže hlásilo pohyb v chráněné chodbě, bezpečnostní větev probudila Atlas a místní řadič mu přidělil sektor. U posledního kroku nebyl přihlášený člověk ani nový vzdálený příkaz. „Mohl reagovat podle starého pravidla,“ řekl. „Z tohohle logu nedokážu poznat, jestli se někdo díval. Ale nemusím si nikoho vymyslet, aby ten start dával smysl.“
+Cole ukázal řetězec události. Čidlo u servisní mříže hlásilo pohyb v chráněné chodbě, bezpečnostní větev probudila Minotaura a místní řadič mu přidělil sektor. U posledního kroku nebyl přihlášený člověk ani nový vzdálený příkaz. „Mohl reagovat podle starého pravidla,“ řekl. „Z tohohle logu nedokážu poznat, jestli se někdo díval. Ale nemusím si nikoho vymyslet, aby ten start dával smysl.“
 
 Carol chtěla vědět, odkud proud do větve přichází. První schéma končilo u podružného rozvaděče na −5. Druhé vedlo dál, přes servisní stoupačku až k napájení, které horní mapy areálu neukazovaly. Větve se dělily těsně před dveřmi: jedna živila bezpečnostní zámky, druhá ventilaci oddělených úseků, třetí nabíjení obrany. Nebyl to zapomenutý akumulátor pod stolem. Někdo postavil celou soustavu tak, aby část základny fungovala i tehdy, když běžné patro zhasne.
 
 „Můžeme ji vypnout?“ zeptala se Panam.
 
-„Atlasův okruh už je odpojený u něj. Celou větev odsud ne,“ odpověděla Carol. „Stejný přívod drží uzávěry a větrání. Neznáme stav toho, co oddělují. Vypínač by byl odhad, ne řešení.“
+„Minotaurův okruh už je odpojený u něj. Celou větev odsud ne,“ odpověděla Carol. „Stejný přívod drží uzávěry a větrání. Neznáme stav toho, co oddělují. Vypínač by byl odhad, ne řešení.“
 
 Judy přitáhla druhý kabelový plán. Byl starší než panel, který před nimi svítil. Na okraji měl řadu odkazů k provozním revizím. Jeden z nich neseděl do běžné bezpečnostní složky: nesl stejné číslo objektu, ale jinou řadu dat a přístup přes servisní audit, nikoli vojenský katalog. „Tady mají historii změn zdrojů,“ řekla. „Jestli chceme vědět, kdy tu větev přidali, vede to přes ni.“
 
@@ -4282,7 +4229,7 @@ Panam se postavila k obrazovce. „Proč?“
 
 Carol našla název režimu. Nebyl ukrytý v technické zkratce, jen v samostatné části, kterou nikdo z horních archivů neukazoval: **NOUZOVÁ KARANTÉNA**. Důvod aktivace byl vyňat do uzavřené přílohy. Nešlo z něj vyčíst, co přesně chtěli zastavit. Šlo však vyčíst, že nechtěli pustit nic ani nikoho mezi některými sektory bez řízení.
 
-Na okamžik jí připadalo, že slyší Atlasovu poslední dávku ve stropě. Ten stroj nebyl vadná památka, která se náhodou probudila. Byl součástí rozhodnutí z roku 2070, aby tu něco dál fungovalo přesně tehdy, když sem nikdo nemá chodit.
+Na okamžik jí připadalo, že slyší Minotaurovu poslední dávku ve stropě. Ten stroj nebyl vadná památka, která se náhodou probudila. Byl součástí rozhodnutí z roku 2070, aby tu něco dál fungovalo přesně tehdy, když sem nikdo nemá chodit.
 
 „Mitchovi to řekni,“ požádala Panam. „Datum a karanténu. Důvod zatím neznáme.“
 
@@ -4331,7 +4278,7 @@ Carol našla doklad, který to ukazoval bez firemních prohlášení. Prototyp v
 
 Panam se opřela rukou o okraj pultu. „Našla jsi tam něco, co nám otevře cestu ven?“
 
-Otázka Carol vrátila z historie do chodby. Za mříží ležel rozbitý Atlas, nad nimi čekali Mitch s Rileym a mezi nimi schodiště, které zatím nikdo nezavřel. Carol nezapomněla, proč registr otevřela. „V převodech ne. Ale stejné číslování spojuje rozpočet s dopravou. Když přesouvali tyhle lidi a bedny mezi základnami, museli mít trasu.“
+Otázka Carol vrátila z historie do chodby. Za mříží ležel rozbitý Minotaur, nad nimi čekali Mitch s Rileym a mezi nimi schodiště, které zatím nikdo nezavřel. Carol nezapomněla, proč registr otevřela. „V převodech ne. Ale stejné číslování spojuje rozpočet s dopravou. Když přesouvali tyhle lidi a bedny mezi základnami, museli mít trasu.“
 
 Panam chvíli hleděla na rozložené dokumenty. „Zjisti kudy. Potřebuju vědět, jestli máme ještě jednu možnost návratu. Pak se rozhodneme, co dál.“
 
@@ -4376,9 +4323,9 @@ Jace si všiml prázdného místa pod poslední kontrolou pojezdu. Někdo mohl v
 
 Ricco se naklonil přes Jaceovo rameno. „A i kdyby stála, po sedmi letech jí nebude stačit říct prosím.“
 
-„Po sedmi letech tady pořád dobíjeli Atlase,“ namítla Carol. „Ale u vlaku je víc věcí, které se mohou zastavit, a z terminálu je neprohlédnu.“
+„Po sedmi letech tady pořád dobíjeli Minotaura,“ namítla Carol. „Ale u vlaku je víc věcí, které se mohou zastavit, a z terminálu je neprohlédnu.“
 
-Jace ocenil, že neprodávala naději jako hotovou práci. Po bitvě s Atlasem by jí to nikdo nevyčítal. Carol místo toho vyznačila v kopii plánu obě přístupové možnosti na −7: nákladní výtah z logistické osy na −1 a servisní schodiště navazující na hlubší patra. Neřekla, která bude průchodná. Uložila schéma soupravy, pořadí přepínačů i polohy nouzových výstupů do místní kopie a druhou předala Coleovi k ověření. To bylo všechno, co mohli udělat, aniž by opustili bezpečný úsek −5.
+Jace ocenil, že neprodávala naději jako hotovou práci. Po bitvě s Minotaurem by jí to nikdo nevyčítal. Carol místo toho vyznačila v kopii plánu obě přístupové možnosti na −7: nákladní výtah z logistické osy na −1 a servisní schodiště navazující na hlubší patra. Neřekla, která bude průchodná. Uložila schéma soupravy, pořadí přepínačů i polohy nouzových výstupů do místní kopie a druhou předala Coleovi k ověření. To bylo všechno, co mohli udělat, aniž by opustili bezpečný úsek −5.
 
 Panam nechala Jacea zopakovat trasu zpátky. Řekl jí ji od jejich rohu kolem Q-17, přes známé bezpečnostní dveře a po hlavním schodišti nahoru. Crowe na západním konci chodby potvrdil, že se od posledního hlášení nic nezměnilo. Byla to pořád jejich první cesta ven.
 
@@ -4393,7 +4340,7 @@ První povolení mělo místo jména pouze vojenský kód. Carol jej vyhledala v
 
 **Kurt Hansen.**
 
-Za Val se ozvalo kovové cvaknutí. Drake pustil přezku na náhradním pásu, který po boji s Atlasem kontroloval. Vasquezová stála vedle něj; ani jeden se nezeptal, jestli četli správně. Panam je oba znala dost dlouho na to, aby je místo otázky nechala přijít k pultu.
+Za Val se ozvalo kovové cvaknutí. Drake pustil přezku na náhradním pásu, který po boji s Minotaurem kontroloval. Vasquezová stála vedle něj; ani jeden se nezeptal, jestli četli správně. Panam je oba znala dost dlouho na to, aby je místo otázky nechala přijít k pultu.
 
 Carol jim ukázala první úplný přepravní list. Šel z Oblasti 52 podzemní větví k předávacímu skladu u Pacificy. Tam dostal novou plombu a jinou původovou značku. Do Hansenova tábora už přijel jako běžná vojenská zásilka. Drake si přitáhl druhý záznam, starší o několik měsíců, a podíval se na datum.
 
@@ -4520,7 +4467,7 @@ Zbýval jih. Crowe hlásil, že třetí Minotaur opustil práh a tlačí se kole
 
 Drake s Vasquezovou změnili stanoviště, neprocházeli středem křižovatky. Přešli za Aponem podél severní zdi a otevřeli křížovou palbu na jižní trup. Minotaur se otočil za Drakem. Crowe vystřelil do odkryté chladicí sestavy; Ricco přes východní průchod hodil další EMP. Zbraň stroje na chvíli zmlkla, nohy však nesly jeho hmotnost dál. Drake a Vasquezová drželi palbu do zad, dokud se přehřáté žaluzie znovu nerozevřely. Pak Vasquezová přenesla dávku na první jádro a Drake na druhé. Obě komory praskly. Těžký trup narazil do jižního rámu a svezl se na bok.
 
-Menší stroje bez jeho krytí dlouho nevydržely. Rafa s Colem zničili posledního humanoidního bota střelbou do hlavy, Hicks sestřelil Wyvern při pokusu zmizet do šachty. Judy ještě chvíli držela tracker nad kouřem, ale mezi rozbitými těly neviděla další pohyb. Panam ji nenutila říct, že tam nic není. Po Atlasovi už všichni znali rozdíl.
+Menší stroje bez jeho krytí dlouho nevydržely. Rafa s Colem zničili posledního humanoidního bota střelbou do hlavy, Hicks sestřelil Wyvern při pokusu zmizet do šachty. Judy ještě chvíli držela tracker nad kouřem, ale mezi rozbitými těly neviděla další pohyb. Panam ji nenutila říct, že tam nic není. Po Minotaurovi už všichni znali rozdíl.
 
 Apon obešel západní vrak z bezpečné strany. Vasquezová ověřila severní stroj, Drake jižní; u všech tří našli roztržené schránky jader a žádnou odpověď pohonu. Minotauři byli zničení. Vnější kanál však po dalších dvou pokusech stále vracel jen šum. Panam přikázala držet osy, dokud si nebudou jistí i zbytkem křižovatky. V kouři se pohybovali lidé s municí a zdravotnickými batohy; nedokázala je zatím rozlišit všechny najednou.
 

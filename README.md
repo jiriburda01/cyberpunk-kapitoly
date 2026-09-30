@@ -7,7 +7,6 @@ Co by vzniklo, kdyby se potkaly světy Stargate a Cyberpunku? Tady sdílíme roz
 ## Čtení
 
 - [Nový pracovní prolog](05_KAPITOLY/Prolog_pracovni_novy.md)
-- [Další verze prologu](05_KAPITOLY/00PrologE29420dve99mi20Judy_upraveny_v3.md)
 - [Kapitola 1](05_KAPITOLY/Kapitola_1_final.md)
 - [Kapitola 2](05_KAPITOLY/Kapitola_2_pracovni.md)
 - [Kapitola 3](05_KAPITOLY/Kapitola_3_pracovni.md)
@@ -15,6 +14,8 @@ Co by vzniklo, kdyby se potkaly světy Stargate a Cyberpunku? Tady sdílíme roz
 - [Kapitola 5](05_KAPITOLY/Kapitola_5_pracovni.md)
 - [Kapitola 6](05_KAPITOLY/Kapitola_6_pracovni.md)
 - [Kapitola 7](05_KAPITOLY/Kapitola_7_pracovni.md)
+- [Kapitola 8](05_KAPITOLY/Kapitola_8_pracovni.md)
+- [Kapitola 9](05_KAPITOLY/Kapitola_9_pracovni.md)
 
 ## Zapoj se
 

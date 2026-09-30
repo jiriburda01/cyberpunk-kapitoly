@@ -328,7 +328,7 @@ Cizinka se na něj podívala. Jack čekal odpověď, ale za jejím ramenem se zr
 
 „Judy,“ řekla tiše. „Hej.“
 
-Judy neodpověděla. Jack teď znal její jméno, ale o nic víc. Cizinka hlídala jeho ruce i Saminu tvář. Neměla důvod věřit ani jednomu z nich; a pokud Danielovo „Ty žiješ“ znamenalo to, co se Jackovi začínalo honit hlavou, nedůvěřovala mu z nějakého důvodu, který s tímto skladem nesouvisel.
+Judy neodpověděla. Jack teď znal její jméno, ale o nic víc. Cizinka hlídala jeho ruce i Saminu tvář. Neměla důvod věřit ani jednomu z nich; a pokud její „Ty žiješ“ znamenalo to, co se Jackovi začínalo honit hlavou, nedůvěřovala mu z nějakého důvodu, který s tímto skladem nesouvisel.
 
 „Zavolej jí,“ řekl Daniel. „Jen lékařku.“
 

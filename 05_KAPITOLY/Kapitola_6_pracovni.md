@@ -831,7 +831,7 @@ Val se nepodívala na něj, nýbrž na Sama. Judy viděla její záda, napjatá 
 
 Val nechala čepele mezi Judy a ostatními. „Tak proč brečíš?“
 
-Ta otázka bolela víc než rána v boku. Judy se zadívala na Valina bosá chodidla na nemocniční podlaze. Chtěla jí povědět o Panam, Dwaynovi, Hicksovi a o roce, který Daniel vyslovil. Chtěla to udělat v jejím objetí, ne před Jackem O’Neillem a dvěma vojáky s prsty u spouští.
+Ta otázka bolela víc než rána v boku. Judy se zadívala na Valina bosá chodidla na nemocniční podlaze. Chtěla jí povědět o Panam, Dwaynovi a o roce, který Daniel vyslovil. Chtěla to udělat v jejím objetí, ne před Jackem O’Neillem a dvěma vojáky s prsty u spouští.
 
 „Řeknu ti to,“ odpověděla. „Až budeme samy.“
 
