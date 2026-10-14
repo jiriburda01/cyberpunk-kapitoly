@@ -2,7 +2,7 @@
 
 ## Scéna 1 — Za sklem
 
-„Dwayne… Panam… kde kurva jste…“
+„Hicksi… Panam… kde jste…“
 
 Daniel se od okna sálu odvrátil. V seděla opřená o stěnu, helmu v klíně a oči zavřené. Její hlas byl sotva slyšet. Před chvílí odmítla Jackovu pomoc tak ostře, že se k ní nikdo nepřiblížil; teď mezi dvěma jmény udělala dlouhou pauzu a hlava jí sklouzla ke straně.
 
@@ -105,17 +105,17 @@ Hammond pohlédl ke stroji u zrcadla. „A tady?“
 
 „Zdržovali,“ opravil ho Daniel.
 
-Jack k němu otočil hlavu. „Děkuju, Danieli.“ Pak se vrátil k Hammondovi. „Ta ve zbroji na nás mířila zbraní. Později vytáhla čepel přímo na Carterovou. Doufal jsem, že než bude muset někdo vystřelit, přestanou jí stačit síly.“
+Jack k němu otočil hlavu. „Děkuju, Danieli.“ Pak se vrátil k Hammondovi. „Ta ve zbroji na nás mířila. Když Carterová přistoupila k Judy, zastavila ji čepelí. Jeden z mužů ostrahy vystřelil. Potom jsem doufal, že jí přestanou stačit síly dřív, než dojde na další zásah.“
 
 „A nestačily?“
 
 „Nakonec.“ Jack pohlédl ke dveřím, za nimiž čekal strážný. „Ne dřív, než nám dala najevo, co si o mém plánu myslí.“
 
-Daniel věděl, že to Jack oddaluje o pár vteřin. Hammond také. „Spustila autodestrukci,“ řekl Jack.
+„Autodestrukci spustila hned, jak ten plán prohlédla,“ pokračoval Jack.
 
-Generálův pohled ztvrdl. „Ona? Máte to potvrzené?“
+Generálův pohled ztvrdl. „Chci vědět, jak jste ověřili, že tu sekvenci skutečně řídila.“
 
-„Odpočet se objevil, když chtěla dostat Judy k lékaři. Zmizel, jakmile ji Fraiserová převzala na sál.“
+„Carterová ověřila, že nálože přijaly aktivační příkaz. Ta žena nám potom otevřela cestu pro Fraiserovou a uvolnila velitelské spojení. Odpočet zrušila, jakmile Judy převzali na sál.“
 
 „Jak se dostala do systému?“
 
@@ -221,7 +221,7 @@ V byla na některých snímcích ozbrojená. Na jednom držela kytaru před dave
 
 Jack se sklonil nad snímky. „To mi došlo, když chtěla vyhodit základnu do vzduchu kvůli doktorce.“
 
-Poslední fotografie z tábora byla ostřejší a barevnější než většina ostatních. Muž na ní spal s nakresleným monoklem, zatočeným knírem a dlouhým doutníkem přes tvář. Nad obočím měl velkými písmeny napsáno **SIR DWAYNE**. Daniel si vybavil jméno, které V šeptala před sálem.
+Poslední fotografie z tábora byla ostřejší a barevnější než většina ostatních. Muž na ní spal s nakresleným monoklem, zatočeným knírem a dlouhým doutníkem přes tvář. Nad obočím měl velkými písmeny napsáno **SIR DWAYNE**. Daniel si nápis prohlédl ještě jednou. Nevěděl, jestli jde o skutečné jméno, nebo součást žertu.
 
 „Aspoň někdo se tam dobře bavil,“ řekl Jack.
 
@@ -465,7 +465,7 @@ Daniel zůstal u dveří. Samino „pokusím se“ znělo jinak než její obvyk
 
 Poslechl ji. Ve své pracovně se však zastavil u knihovny a vytáhl vlastní výtisk *Komu zvoní hrana*. Valina kniha zůstala zapečetěná ve skladu. Tu svou si odnesl do pokoje, otevřel na první stránce a začal číst.
 
-Po třech kapitolách zjistil, že sleduje stejný příběh, ale myšlenkami se pořád vrací k fotografii z tábora. Val s knihou na kolenou. Judy vedle ní. Dwayne s namalovaným monoklem. Lidé, kteří na žádném záznamu SGC neměli jméno, a přesto pro jednu z těch žen znamenali tolik, že je volala i v bezvědomí.
+Po třech kapitolách zjistil, že sleduje stejný příběh, ale myšlenkami se pořád vrací k fotografii z tábora. Val s knihou na kolenou. Judy vedle ní. Muž s namalovaným monoklem. Lidé, o jejichž životech v SGC nic nevěděli. Mezi nimi možná i ti, které V volala, když ztrácela vědomí.
 
 Daniel vložil záložku, zhasl a lehl si. Nevěděl, kdo V a Judy doopravdy jsou ani proč se při pohledu na něj V zarazila. Slyšel jen její hlas, překvapený něčím, co považovala za nemožné.
 
@@ -481,7 +481,7 @@ Nad ní stála žena v lékařském oděvu a přidržovala jí stetoskop u hrudn
 
 Ležela na vedlejším lůžku. Bez zbroje, bez helmy, s rukama podél těla. Švy kolem očí a staré jizvy na pažích vypadaly pod nemocničním světlem ostřeji než doma. Judy ji chvíli pozorovala. Hrudník se zvedl a klesl. Znovu. Pořád to bylo málo.
 
-Pokusila se otevřít sdílenou vrstvu biomonitoru. Nic. Žádná teplota, oběhový tlak ani stav chlazení. Vybavila si dveře sálu, Vinu ruku u svého krku a tiché cvaknutí, když na její prosbu odpojila link. Helmu jí někdo sundal a vlastní věnec neměla. Bez připojení jí zůstával jen pohled na Valino dýchání.
+Pokusila se otevřít sdílenou vrstvu biomonitoru. Nic. Žádná teplota, oběhový tlak ani stav chlazení. Vybavila si dveře sálu, Vinu ruku u svého krku a tiché cvaknutí, když na její prosbu odpojila link. Spojení od té chvíle nikdo neobnovil. Bez něj jí zůstával jen pohled na Valino dýchání.
 
 „Je naživu,“ řekla doktorka, jako by poznala, na co se dívá. „Stabilizovali jsme ji. Teď potřebuju zkontrolovat vás.“
 
@@ -489,7 +489,7 @@ Judy kývla, ale oči z V nespustila. Při dalším nádechu ji zabolelo pod lev
 
 „Doktorka Fraiserová,“ představila se žena. „Operovala jsem vás v noci. Krvácení jsme zastavili. Víte, kde jste?“
 
-Judy zavrtěla hlavou. Pokoj byl čistý, ale přístroje u postelí měly malé obrazovky, hrubé zelené číslice a kabely natažené z míst, kde čekala bezdrátová čidla. Připadal jí jako draze udržovaná výstava dávno vyřazené techniky. Rozhlédla se po hledí, po svém věnci, po čemkoli, co by jí vrátilo vlastní obraz dat. Nenašla nic.
+Judy zavrtěla hlavou. Pokoj byl čistý, ale přístroje u postelí měly malé obrazovky, hrubé zelené číslice a kabely natažené z míst, kde čekala bezdrátová čidla. Připadal jí jako draze udržovaná výstava dávno vyřazené techniky. Zkusila se zorientovat v údajích na obrazovce u Valina lůžka. Neznala jejich uspořádání a chyběly jí hodnoty chlazení.
 
 Sestra vešla s podnosem. Judy zahlédla vejce, kousek ovoce a sklenici vody. Za jiných okolností by se zeptala, odkud se tu vzaly skutečné vejce a čerstvé ovoce. Teď se jí při představě jídla stáhl žaludek.
 
